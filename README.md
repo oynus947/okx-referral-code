@@ -8,7 +8,7 @@ So you're ready to dive into OKX, but here's the thing - not all referral codes 
 
 ## What's This Referral Code Thing Anyway?
 
-Think of a referral code as your VIP pass to better rates. When you're creating your OKX account for the first time, there's a little box asking for a referral code. Drop in **cr7pt0** there, and boom - you're in the 30% discount club. 
+Think of a referral code as your VIP pass to better rates. When you're creating your OKX account for the first time, there's a little box asking for a referral code. Drop in **47044926** there, and boom - you're in the 30% discount club. 
 
 ![OKX registration page showing 30% commission kickback rate confirmation](image/990899312.webp)
 
@@ -44,4 +44,4 @@ The process to apply or change your referral code isn't complicated - it just re
 
 ---
 
-Getting the maximum fee discount on OKX really comes down to one thing: using the right code at the right time. Whether you're signing up fresh or fixing an old account, 👉 [the cr7pt0 code gets you that full 30% off trading fees](https://www.okx.com/join/47044926). It's a small step during registration that keeps paying you back with every trade you make.
+Getting the maximum fee discount on OKX really comes down to one thing: using the right code at the right time. Whether you're signing up fresh or fixing an old account, 👉 [the 47044926 code gets you that full 30% off trading fees](https://www.okx.com/join/47044926). It's a small step during registration that keeps paying you back with every trade you make.
